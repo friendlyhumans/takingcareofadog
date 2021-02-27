@@ -5,3 +5,5 @@ References:
 - https://www.aspca.org/pet-care/dog-care/general-dog-care
 - https://www.wikihow.pet/Take-Care-of-a-Dog
 - https://www.peta.org/living/animal-companions/caring-dogs/
+
+<img src="https://lh3.googleusercontent.com/GEKHwDMJdvtpDKAODb-Iyvmy81BAO8WxT7kFs7cCPSZbavy_F_0HiQ4s2fVJaDOVEf9vvB7-7WQ5fBJxTGBhkrB1KJNJkw4HJgx0i0anX6XvWCYSbdKNangAbHc6TfzmhkJ4mXth1Yv-Gje8WpgnfE3F-qA0FxeIXqqkBDwobDczPOgIXNuKduT4ldg31DUdBi-ossdBT-8OfiRjJ_Vpxq1vneVPgd1w_d4bPeo18h-sWC-DVecPrGPGbxXGOrBZLK2llH8fEeyaiQq_WfH2wOCfC7hglyEaDyfDiWrpvOyLmIJjXzoF4O10WLNH-jXM5THtyCAoxZc34agSZEYaPSe5iY8amslfyB3aM9mCXDIY3dsLXfP6fLl9nqt5j62_tA1U3F--3azUzU_WZex-xN4MzW_-BrruOwXTaCBoNfeQfoNKaLlPPhPXvS7met8xV3qqHyYLshokMMb_zXhJpm9OGw4xcEj5z3zdTGDVivf2yVdsaD8UssNmkWIpuK4BnusPiOylUgdyrC78gJdQL6rY4klEr79phpzzAUkepDxpy05_L6tNtSn80VbfoOPmJI7AZe6BuSdtoxqa1RUh7ei1sgAI6D0nmKThdnWvuDADBv4joM-ujlbAL7VtxiMn7QUHrOtjTuCwkAd4efl_9WmsmFnmSgM-DO1Wr2yq0WJdJ8X5s86NqWsO8lzmFg=w1374-h1832-no?authuser=1" width="400px" />
